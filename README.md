@@ -1,0 +1,1 @@
+# -HR-scorecard-Measuring-Success-in-Talent-Management-NM-ID-8EEAE97600B98DEB8C54DC7C1615EC40
